@@ -8,6 +8,8 @@
 
 *( In som3 cas3s I'm s3mi-afk, probably I'm doing things irl, b3ing distract3d, 3tc )*
 
+*( If I'm afk it's sur3ly bc I'm charging my phon3 or just b3ing mor3 distract3d )*
+
 *I LOV333 C+H sm, u can go ah3ad and c+h fr33ly, idm!*
 
 *My int3rn3t is so badd.. giggl3s n3rvously*
