@@ -1,6 +1,6 @@
 <div align="center">
 
-# PT INFO
+# PT INFO + som3 byi ig
 
 *﹒ ︵︵﹒︵︵୨ ꒰ㅤ꒱ ୧︵︵﹒︵︵ ﹒*
 
@@ -14,13 +14,15 @@
 
 *w2i and int r okay! I lik3 talking with ppl sinc3 I usually don't hav3 som31 to talk daily*
 
-*I don't r3ally talk 2 muchchhhhh so I probably sound awkward:(((*
+*I don't r3ally talk 2 much and I g3t rlly n3rvous, so int first 🙏🙏plS*
 
 *I r3plac3 th3 "e" with "3" if u alr3ady notic3d, I'm comf writing lik3 this*
 
-***HUG3 INT** IF U R ON MY MAIN FANDOMS 🙏🙏 ( th3y r on my r3ntry if curious! )*
+***HUG3 INT** IF U R ON MY MAIN FANDOMS 🙏🙏 ( Forsak3n, Dav3 and Bambi, Th3 Last Gu3st, Knife Ability T3st, Los Prision3ros, Obj3ct Show Community )*
 
 *I'd b3 grat3ful if w3 becam3 fri3nds whil3 talking or sumthing bc I LOV3 MAKING FRI3NDS!!!! <33*
+
+*Also it's possibl3 that I will struggl3 whil3 communicating, sorry abt that 3nglish is not my first languag3 ☹️☹️*
 
 *That's 3v3rything for now! By3 by3! ^_^*
 
