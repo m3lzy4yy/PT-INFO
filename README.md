@@ -20,7 +20,7 @@
 
 *I r3plac3 th3 "e" with "3" if u alr3ady notic3d, I'm comf writing lik3 this*
 
-***HUG3 INT** IF U R ON MY MAIN FANDOMS 🙏🙏 ( Forsak3n, Dav3 and Bambi, Th3 Last Gu3st, Knife Ability T3st, Los Prision3ros, Obj3ct Show Community )*
+***HUG3 INT** IF U R ON MY MAIN FANDOMS 🙏🙏 ( Forsak3n, Dav3 and Bambi, Th3 Last Gu3st, Knif3 Ability T3st, Los Prision3ros, Obj3ct Show Community )*
 
 *I'd b3 grat3ful if w3 becam3 fri3nds whil3 talking or sumthing bc I LOV3 MAKING FRI3NDS!!!! <33*
 
