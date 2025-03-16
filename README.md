@@ -14,7 +14,7 @@
 
 *My int3rn3t is so badd.. giggl3s n3rvously*
 
-*w2i and int r okay! I lik3 talking with ppl sinc3 I usually don't hav3 som31 to talk daily*
+*w2i and int r okay! I lik3 talking with ppl sinc3 I usually don't hav3 som31 to talk daily ( But it's r3commend3d to w2i with m3 )*
 
 *I don't r3ally talk 2 much and I g3t rlly n3rvous, so int first 🙏🙏plS*
 
